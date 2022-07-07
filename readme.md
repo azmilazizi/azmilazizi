@@ -26,9 +26,9 @@ I'm a **Web and Mobile App Developer** building the **Web and Mobile Application
 
 ---
 
-Feel free to visit my portfolio **[azmilazizi.github.io](https://rammaheshwari.com)** to explore some of my recent **projects** and find more about me.
+Feel free to visit my portfolio **[azmilazizi.github.io](https://azmilazizi.github.io)** to explore some of my recent **projects** and find more about me.
 
-I'm **open** to full-time opportunities where I can **contribute**, **learn** and **grow**. If you have a good opportunity that matches my skills and experience then feel free to **contact** me on my **[Linkedin](https://linkedin.com/in/azmilazizinordin)** or my **[portfolio](https://azmilazizi.github.io)**.
+I'm **open** to full-time employment where I can **contribute**, **learn** and **grow**. If you have a good job opportunity that matches my skills and experience then feel free to **contact** me on my **[Linkedin](https://linkedin.com/in/azmilazizinordin)** or my **[portfolio](https://azmilazizi.github.io)**.
 
 ---
 
